@@ -1,6 +1,6 @@
 # Artwork-Assets
 
-The first two artwork assets are scheduled to be released on or before **March 4, 2026**
+The first two artwork assets are scheduled to be released on or before **April 11, 2026**
 
 ---
 
